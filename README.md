@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @brianrichardramos
+- 👀 I have eyes, two of them
+- 🌱 I have grown plants, indoors and outdoors
+- 💞️ I only have one physical heart, that I am aware of, but thankfully many people and computer systems in my life which deserve heart emojis
+- 📫 Please send me physical mail with an interesting sheet of stickers to support what I am doing here on github, get in touch at brianramos@gmail.com
+- 😄 I try to smile and laugh whenever my brow is not furrowed in concentration or empathy while awake-- I am not sure what I do while asleep except when there is a snoring complaint
+- ⚡ The lightning emoji has so many connotations, but for me it is probably kickstarting my mint condition Delorean (SNOPES: Brian does not own a Delorean)
